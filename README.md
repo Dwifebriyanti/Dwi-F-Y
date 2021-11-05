@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Dwifebriyanti
 - 👀 I’m interested in study course
 - 🌱 I’m currently learning any language
-- 💞️ I’m looking to collaborate on projects ir full time work
+- 💞️ I’m looking to collaborate on projects or full time work
 - 📫 How to reach me febriyantid18@gmail.com
 
 <!---
